@@ -1,0 +1,1 @@
+# Encapsulation-ve-Property-Kavram-
